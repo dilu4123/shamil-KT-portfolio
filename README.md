@@ -1,1 +1,0 @@
-# shamil-KT-portfolio
